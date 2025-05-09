@@ -7,6 +7,8 @@ Cash App is a mobile payment service developed by Block, Inc. that allows users 
 
 [Get $750 Cash App](https://smrturl.co/a/s4f603f7e94/11279?s1=)
 
+[Cash App 750](https://smrturl.co/a/s4f603f7e94/663?s1=)
+
 **How Does Cash App Work?**
 Once you download the app and create an account, you can link your debit card or bank account. From there, sending and receiving money is as simple as entering a phone number, email, or \$Cashtag. Funds can also be transferred directly to your bank within seconds, or used through the Cash Card – a customizable debit card linked to your account.
 
