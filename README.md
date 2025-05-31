@@ -14,6 +14,8 @@ Cash App is a mobile payment service developed by Block, Inc. that allows users 
 **How Does Cash App Work?**
 Once you download the app and create an account, you can link your debit card or bank account. From there, sending and receiving money is as simple as entering a phone number, email, or \$Cashtag. Funds can also be transferred directly to your bank within seconds, or used through the Cash Card – a customizable debit card linked to your account.
 
+[![68747470733a2f2f73362e67696679752e636f6d2f696d616765732f62704e41562e676966](https://github.com/user-attachments/assets/10f8acf3-576e-4569-959c-f556dabdf37f)](https://therewardgate.com/free-monopoly-dice/)
+
 **Is Cash App Safe to Use?**
 Security is a priority for Cash App. It uses encryption and fraud detection technologies to protect user data. Additionally, users can enable Face ID, fingerprint scanning, or passcodes for added protection.
 
